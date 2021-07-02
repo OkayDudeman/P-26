@@ -1,0 +1,1 @@
+Get a mug nad Milo. Add 2 tablespoons of Milo into the mug. Poor as much water as you like and then add a bit of Milk. 
